@@ -1,8 +1,10 @@
 ## Hi there 👋
 
-My name is Aaron Gustafson and my work is on the web. It has also been exhibited in New York, the United Kingdom and China and featured in art and photography publications such as AnOther Magazine, Foam, Seattle Magazine and Popular Photography.
+My name is Aaron Gustafson and my work is on the web.
 
-[The Society of Professional Journalists](https://www.spj.org/) honored me with a Mark of Excellence Award. And photographer and author [Chase Jarvis](https://x.com/chasejarvis) called me a "creatively compelled" artist who—in the words of Carl Jung—"lets his mind play with the objects he loves."
+My work has also been exhibited in New York, the United Kingdom and China and featured in art and photography publications such as AnOther Magazine, Foam, Seattle Magazine and Popular Photography.
+
+[The Society of Professional Journalists](https://www.spj.org/) honored me with a Mark of Excellence Award. And photographer and author [Chase Jarvis](https://x.com/chasejarvis) called me a "creatively compelled" artist who—likened to the words of Carl Jung—"lets his mind play with the objects he loves."
 
 Works in [series](https://www.aarongus.com/series) include:  
 &nbsp;&nbsp;&nbsp;&nbsp;[The Microsoft Project](https://www.aarongus.com/series/microsoft-project)  
@@ -17,5 +19,4 @@ Works in [portraiture and fashion](https://www.aarongus.com/portraits-fashion) i
 &nbsp;&nbsp;&nbsp;&nbsp;[Andreea](https://www.aarongus.com/portraits-fashion/andreea)
 
 I hold a Master of Fine Arts from [Parsons School of Design](https://www.newschool.edu/parsons/), New York.  
-I live and work in Seattle.  
-See more at [aarongus.com](https://www.aarongus.com).
+I live and work in Seattle.
