@@ -16,4 +16,6 @@ Works in [portraiture and fashion](https://www.aarongus.com/portraits-fashion) i
 &nbsp;&nbsp;&nbsp;&nbsp;[Kacy](https://www.aarongus.com/portraits-fashion/kacy)  
 &nbsp;&nbsp;&nbsp;&nbsp;[Andreea](https://www.aarongus.com/portraits-fashion/andreea)
 
-I live and work in Seattle. See more at [aarongus.com](https://www.aarongus.com).
+I hold a Master of Fine Arts from [Parsons School of Design](https://www.newschool.edu/parsons/), New York.  
+I live and work in Seattle.  
+See more at [aarongus.com](https://www.aarongus.com).
