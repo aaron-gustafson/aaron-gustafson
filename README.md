@@ -20,3 +20,5 @@ Works in [portraiture and fashion](https://www.aarongus.com/portraits-fashion) i
 
 I hold a Master of Fine Arts from [Parsons School of Design](https://www.newschool.edu/parsons/), New York.  
 I live and work in Seattle.
+
+[Behance](https://www.behance.net/aaron-gustafson) | [Saatchi](https://www.saatchiart.com/aaron-gustafson) | [Flickr](https://www.flickr.com/people/aaron-gustafson/) | [Pinterest](https://www.pinterest.com/gustafsonaaron/) | [Medium](https://medium.com/@aaron-gustafson) | [500px](https://500px.com/p/aarongustafson?view=photos) | [LinkedIn](https://www.linkedin.com/in/aaron-gustafson-artist) | [YouPic](https://youpic.com/aarongustafson) | [Cara](https://cara.app/aaron-gustafson)
